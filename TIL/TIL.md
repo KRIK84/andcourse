@@ -1,4 +1,4 @@
-# Today i got knowledge about':'
+# Today i got knowledge about
 
 31/05/2021
 
